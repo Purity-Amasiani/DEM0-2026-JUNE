@@ -3,3 +3,6 @@ WELCOME TO ANOTHER MONTH, LAST MONTHS MISTAKES WITH BE THIS MONTHS IMPROVEMENTS.
 
 01 JUNE 2O26
 New month, new day, new week, lets gooo!!!
+
+02 JUNE 2O26
+New day, more grind.
