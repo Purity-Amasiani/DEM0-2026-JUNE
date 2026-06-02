@@ -6,3 +6,4 @@ New month, new day, new week, lets gooo!!!
 
 02 JUNE 2O26
 New day, more grind.
+TKV affiliate feature and admin dash done, more improvements to add to the dash with time.
